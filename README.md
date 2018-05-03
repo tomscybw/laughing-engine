@@ -1,1 +1,1 @@
-I transferred ETH to aethernity on 3 April 2017 and should have received 1,100 AU for it. But I can't find an account with these 1'100 AU anywhere on your websites. Where can I find my 1'100 AU? How do I get my credit?
+I transferred ETH to aethernity on 3 April 2017 and should have received 1,100 AE for it. But I can't find an account with these 1'100 AU anywhere on your websites. Where can I find my 1'100 AE? How do I get my credit?
